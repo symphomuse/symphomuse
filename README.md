@@ -1,9 +1,3 @@
-![](z6toz8.png)
-
-## "Come, shall we dance?"
-![](f1z0yl.gif) sateriasis venomania<br/>
-![](f1z0yl.gif) *karchess crim dni.*
-
-![](6p5cu8.png)
-
-![](dmq30m.png)
+if u see this alt on my pony them I'm like. **SUPER** pissed off ok? iwec/iwcare and i also hate being covered if i don't know u. so theres that.<br/>
+also like. int with caution or care idm which.<br/>
+i'll mostly be with my friends [ najm, shosho, mig, johnny, lena, or like. whoever I can find. ]<br/>
